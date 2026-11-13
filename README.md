@@ -11,14 +11,14 @@
 
 
 1. Về sự mất sinh khí phần linh hồn
-2. các triệu chứng 
-3. Nguyên nhân
+2. các triệu chứng của sự mất sinh khí phần linh hồn
+3. Nguyên nhân của sự mất sinh khí phần linh hồn
 4. Phương pháp
 5. Đức tin
 
 
 
-Hiện tượng mà bất kỳ thánh đồ nào song đức tin đều có thể trải qua ít nhất một lần
+ Hiện tượng mà bất kỳ thánh đồ nào song đức tin đều có thể trải qua ít nhất một lần
 
 
 
@@ -276,7 +276,7 @@ Hiện tượng mà bất kỳ thánh đồ nào song đức tin đều có th�
 
 
 
-	thử thách có thể dễ dàng xảy ra với những thánh đồ đã trung tín giữ vững đức tin trong thời gian dài 
+	 thử thách có thể dễ dàng xảy ra với những thánh đồ đã trung tín giữ vững đức tin trong thời gian dài 
 
 
 
