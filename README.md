@@ -18,7 +18,7 @@
 
 
 
-	Hiện tượng mà bất kỳ thánh đồ nào song đức tin đều có thể trải qua ít nhất một lần
+Hiện tượng mà bất kỳ thánh đồ nào song đức tin đều có thể trải qua ít nhất một lần
 
 
 
@@ -46,7 +46,7 @@
 
 
 
-		1.1 sự mất sinh khí là gì?
+	1.1 sự mất sinh khí là gì?
 
 
 
@@ -62,7 +62,7 @@
 
 
 
-		1.2 sự mất sinh khí phần linh hồn là gì?
+	1.2 sự mất sinh khí phần linh hồn là gì?
 
 
 
@@ -80,7 +80,7 @@
 
 
 
-2\. các triệu chứng chính của sự mất sinh khí phần linh hồn
+2. các triệu chứng chính của sự mất sinh khí phần linh hồn
 
 
 
@@ -272,7 +272,7 @@
 
 
 
-3 Nguyên nhân của sự mất sinh khí phần linh hồn
+3. Nguyên nhân của sự mất sinh khí phần linh hồn
 
 
 
